@@ -1,1 +1,0 @@
-# junejakapish.github.io
